@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil G-LightFlight 😁
+## Bem-vindo(a) ao perfil G-LightFlight 🦋
 
  <div>
    <a href="https://github.com/g-lightflight">
